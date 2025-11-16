@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently doing my Bachelor's in Cybersecurity<br>I am looking for collaboration with a Cyber Security Engineer<br>I am currently learning Ethical hacking for deep exploitation<br>
+I am currently doing Bachelor's in Cybersecurity<br>I am looking for collaboration with a Cyber Security Engineer<br>I am currently learning Ethical hacking for deep exploitation<br>
 
 
 ## 🌐 Socials:
